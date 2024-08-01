@@ -1,1 +1,1 @@
-Download the  Apk by going to the release section 
+Download the  Apk by going to the releases section 
